@@ -1,4 +1,4 @@
 SheepLand
 =========
 
-SheepLand project e jack è gay
+SheepLand project punto.
